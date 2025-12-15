@@ -1,1 +1,0 @@
-# Algorito-Recorte
